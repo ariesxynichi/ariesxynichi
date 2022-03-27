@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ariesxynichi
 - 👀 I’m interested in you
-- 🌱 I’m currently learning paano ka mahalalin
+- 🌱 I’m currently learning paano ka mahalin
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
